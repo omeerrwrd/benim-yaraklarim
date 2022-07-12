@@ -1,0 +1,1 @@
+# benim-yaraklarim omeerrwrd,omeerrwrd
